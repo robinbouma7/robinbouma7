@@ -1,4 +1,4 @@
-my name is robin and i'm a programmer from the netherlands.
+my name is robin and i'm a chad programmer from the netherlands.
 
 im pretty good at javascript and i can make basic programs for the psp.
 
